@@ -1,1 +1,1 @@
-# please-read-this
+<a href="https://www.glitter-graphics.com"><img src="http://dl5.glitter-graphics.net/pub/1281/1281235kn44puh1l7.gif" width=156 height=46 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
